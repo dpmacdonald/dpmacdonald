@@ -1,5 +1,3 @@
-Hi everyone,
-
 My name is Daniel MacDonald, I am an Associate Professor and Chair of the Economics Department at California State University San Bernardino.
 
 I'm using this account to...
